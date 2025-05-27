@@ -1,0 +1,2 @@
+# Shanksanarie
+Satirical Dictionary 
